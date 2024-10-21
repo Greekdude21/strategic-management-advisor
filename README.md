@@ -1,0 +1,1 @@
+# strategic-management-advisor
